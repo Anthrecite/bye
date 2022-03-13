@@ -1,11 +1,12 @@
 ### Closing issues and PRs to avoid further harassment.
 
+**TL;DR: Random nn gets attacked over having a bad client and config issue, copes about it on r/minecraftclients and gets publicly shamed in multiple Discord servers and DMs.**
+
+I hope you retards dont spam my friends 69 other socials with "TL;DR" because you're clearly braindead.
 
 ```
 Shouldnt've lost on that HvH!!! - Anthrecite 2022
 ```
-
-**TL;DR: Random nn gets attacked over having a bad client and config issue, copes about it on r/minecraftclients and gets publicly shamed in multiple Discord servers and DMs.**
 
 I'm seriously considering suicide, I bet the community would laugh and laugh at me for it because I'm such a mentally frail wimp.  
 Idgaf if you decide to friend me to send me "suicide help" resources I know you're laughing so hard irl about this. 🤣
