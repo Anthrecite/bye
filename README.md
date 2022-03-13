@@ -397,7 +397,7 @@ way higher than you
 (I blocked him because it would get even worse if I didn't)
 ```
 
-Keep in mind I dont know a lot of the terms used in the conversation since I joined in 2020 and I'm really new (as said an immense fucking amount of times by Anth)
+Keep in mind I dont know a lot of the terms used in the conversation since I joined in 2020 and I'm really new (as said an immense fucking amount of times by Anth)  
 I know that was long, but it explains a lot of the shit that happened.
 
 # A basic summary of the stuff on the Intent discord server(s)
