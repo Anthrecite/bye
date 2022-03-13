@@ -651,4 +651,8 @@ Anth found my shitty youtube channel where I usually post shitposts and stuff.
 
 He decided to make funny comments on there.
 
+Luckily it was a brand channel and there wasn't much information to it, so I just ended up deleting it.
+
+I also renamed my github to this 😀
+The name perfectly explains what was said to me.
 
