@@ -59,7 +59,6 @@ Minecraft
 [19:22:59] [Client thread/INFO]: [CHAT] vim98: "excuses" cope i won 2 / 4 rounds
 [19:23:03] [Client thread/INFO]: [CHAT] Anthrememe: gapple
 [19:23:04] [Client thread/INFO]: [CHAT] vim98: my client is as shit as yours
-[19:23:06] [Client thread/INFO]: [CHAT] §8× §bSystem §8×§r §cPlease stop spamming..
 [19:23:06] [Client thread/INFO]: [CHAT] Anthrememe: dont fold
 [19:23:11] [Client thread/INFO]: [CHAT] vim98: not folding just good
 [19:23:13] [Client thread/INFO]: [CHAT] Anthrememe: gapple
@@ -85,7 +84,6 @@ Minecraft
 [19:27:58] [Client thread/INFO]: [CHAT] Anthrememe: go gapple
 [19:28:05] [Client thread/INFO]: [CHAT] vim98: who tf is Anthrememe????
 [19:28:08] [Client thread/INFO]: [CHAT] vim98: havent heard of you
-[19:28:10] [Client thread/INFO]: [CHAT] [Duels] You are now queueing Gapple!
 [19:28:16] [Client thread/INFO]: [CHAT] Anthrememe: whats your discord name
 [19:28:21] [Client thread/INFO]: [CHAT] vim98: acaiberii#8420
 [19:28:26] [Client thread/INFO]: [CHAT] Anthrememe: XDDD nn
@@ -99,327 +97,187 @@ Discord
 ```
 [11-Mar-22 07:29 PM] Anthraxite#8268
 no mutuals XDDDDD
-
-
-[11-Mar-22 07:29 PM] Anthraxite#8268
 nn
-
-
-[11-Mar-22 07:29 PM] Anthraxite#8268
 newgen faggot
-
 
 [11-Mar-22 07:29 PM] acaiberii#8420
 no mutuals faggot?
 
-
 [11-Mar-22 07:29 PM] acaiberii#8420
 intent public??? tena private??? josephworks???
-
-
-[11-Mar-22 07:29 PM] acaiberii#8420
 retardddd
-
-
-[11-Mar-22 07:29 PM] acaiberii#8420
 😬
-
 
 [11-Mar-22 07:29 PM] Anthraxite#8268
 mutual friends reatrd
 
-
 [11-Mar-22 07:30 PM] acaiberii#8420
 ohhh
 
-
 [11-Mar-22 07:30 PM] Anthraxite#8268
 fucking newgen retard
-
-
-[11-Mar-22 07:30 PM] Anthraxite#8268
 literal nn
-
 
 [11-Mar-22 07:30 PM] acaiberii#8420
 sorry i dont know anyone in your retarded gaggle of friends
-
-
-[11-Mar-22 07:30 PM] acaiberii#8420
 also who r u?
-
-
-[11-Mar-22 07:30 PM] acaiberii#8420
 never heard of anthraxite
-
 
 [11-Mar-22 07:30 PM] Anthraxite#8268
 because you're a newgen XD
 
-
 [11-Mar-22 07:30 PM] acaiberii#8420
 sadly im not actually that new
-
-
-[11-Mar-22 07:30 PM] acaiberii#8420
 😭
-
 
 [11-Mar-22 07:31 PM] Anthraxite#8268
 ok what year did you join the comm
 
-
 [11-Mar-22 07:31 PM] acaiberii#8420
 ig ~2020
 
-
 [11-Mar-22 07:31 PM] Anthraxite#8268
 XDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
-
-
-[11-Mar-22 07:31 PM] Anthraxite#8268
 covid joiner XDDDD
-
 
 [11-Mar-22 07:31 PM] acaiberii#8420
 sorry i cant hear you over the XDs are you trying to cope with being a retarded lil kid or what?
 
-
 [11-Mar-22 07:31 PM] Anthraxite#8268
 legit newgen
-
-
-[11-Mar-22 07:31 PM] Anthraxite#8268
 stop talking
-
 
 [11-Mar-22 07:31 PM] acaiberii#8420
 also send me a ss of the hud
-
-
-[11-Mar-22 07:32 PM] acaiberii#8420
 just so i can prove its not a big name client
-
-
-[11-Mar-22 07:32 PM] acaiberii#8420
 🙂
-
 
 [11-Mar-22 07:32 PM] Anthraxite#8268
 yeah dude totally
 
-
 [11-Mar-22 07:32 PM] acaiberii#8420
-
 {Attachments}
-https://cdn.discordapp.com/attachments/952000281296666714/952001053505773598/unknown.png
-
-
-[11-Mar-22 07:32 PM] acaiberii#8420
+https://cdn.discordapp.com/attachments/952000281296666714/952001053505773598/unknown.png  
+(Tenacity)
 here i sent mine
-
-
-[11-Mar-22 07:32 PM] acaiberii#8420
 go send yours
-
 
 [11-Mar-22 07:32 PM] Anthraxite#8268
 tenacity XD
 
-
 [11-Mar-22 07:32 PM] acaiberii#8420
 tenacity isnt good? isnt thorbn a tenacity admin???
 
-
 [11-Mar-22 07:32 PM] Anthraxite#8268
-
 {Attachments}
-https://cdn.discordapp.com/attachments/952000281296666714/952001156882776105/javaw_XRs1KCGkpO.png
-
+https://cdn.discordapp.com/attachments/952000281296666714/952001156882776105/javaw_XRs1KCGkpO.png  
+(Exhibition)
 
 [11-Mar-22 07:32 PM] acaiberii#8420
 EXHIBITION LMAOOOOO XDDDXDXDXDXD
-
-
-[11-Mar-22 07:32 PM] acaiberii#8420
 that shit
-
-
-[11-Mar-22 07:32 PM] acaiberii#8420
 is old
-
-
-[11-Mar-22 07:32 PM] acaiberii#8420
 asf
-
 
 [11-Mar-22 07:32 PM] Anthraxite#8268
 and still fucking you
 
-
 [11-Mar-22 07:33 PM] acaiberii#8420
 😭
-
 
 [11-Mar-22 07:33 PM] Anthraxite#8268
 cope about it
 
-
 [11-Mar-22 07:33 PM] acaiberii#8420
 im coping well
-
-
-[11-Mar-22 07:33 PM] acaiberii#8420
 im sure zeroday would do slightly better in an hvh
-
 
 [11-Mar-22 07:33 PM] Anthraxite#8268
 you want me to do better and switch clients?
-
-
-[11-Mar-22 07:33 PM] Anthraxite#8268
 ill switch
-
 
 [11-Mar-22 07:33 PM] acaiberii#8420
 no
 
-
 [11-Mar-22 07:33 PM] acaiberii#8420
 i mean ill switch
-
 
 [11-Mar-22 07:33 PM] Anthraxite#8268
 scared?
 
-
 [11-Mar-22 07:33 PM] acaiberii#8420
 nope
-
-
-[11-Mar-22 07:33 PM] acaiberii#8420
 im just testing shit
-
 
 [11-Mar-22 07:33 PM] Anthraxite#8268
 ok then ill switch to a better client
 
-
 [11-Mar-22 07:33 PM] acaiberii#8420
 im not hvhing with toxic retards like you
-
-
-[11-Mar-22 07:33 PM] acaiberii#8420
 i really dont want to
-
 
 [11-Mar-22 07:33 PM] Anthraxite#8268
 fold
 
-
 [11-Mar-22 07:34 PM] acaiberii#8420
 🤡?
-
 
 [11-Mar-22 07:34 PM] Anthraxite#8268
 ik you're a clown for folding
 
-
 [11-Mar-22 07:34 PM] acaiberii#8420
 nope
-
 
 [11-Mar-22 07:34 PM] Anthraxite#8268
 yes you are
 
-
 [11-Mar-22 07:34 PM] acaiberii#8420
 nope
-
-
-[11-Mar-22 07:34 PM] acaiberii#8420
 nope
-
-
-[11-Mar-22 07:34 PM] acaiberii#8420
 nope
-
-
-[11-Mar-22 07:34 PM] acaiberii#8420
 nope
-
 
 [11-Mar-22 07:34 PM] Anthraxite#8268
 you're so cringe
 
-
 [11-Mar-22 07:34 PM] acaiberii#8420
 im not though
-
-
-[11-Mar-22 07:34 PM] acaiberii#8420
 you're literally making my skin peel off
-
 
 [11-Mar-22 07:35 PM] Anthraxite#8268
 legit covid joiner making cringe eviate jokes XD
 
-
 [11-Mar-22 07:35 PM] acaiberii#8420
 starting with my mouth
-
 
 [11-Mar-22 07:35 PM] acaiberii#8420
 eviate jokes????
 
-
 [11-Mar-22 07:35 PM] Anthraxite#8268
 your kill sult
-
 
 [11-Mar-22 07:35 PM] acaiberii#8420
 yeah ik
 
-
 [11-Mar-22 07:35 PM] Anthraxite#8268
 was eviate
 
-
 [11-Mar-22 07:35 PM] acaiberii#8420
 I DONT HAVE KILL SULTS LMAO
-
-
-[11-Mar-22 07:35 PM] acaiberii#8420
 XDDD
-
-
-[11-Mar-22 07:35 PM] acaiberii#8420
 🥴
-
 
 [11-Mar-22 07:35 PM] Anthraxite#8268
 then why did you say the eviratted shit in chat
-
-
-[11-Mar-22 07:35 PM] Anthraxite#8268
 dumbass
-
 
 [11-Mar-22 07:35 PM] acaiberii#8420
 because haha
-
-
-[11-Mar-22 07:35 PM] acaiberii#8420
 why not
-
 
 [11-Mar-22 07:35 PM] Anthraxite#8268
 "haha" newgen humor thats why not
-
-
-[11-Mar-22 07:36 PM] Anthraxite#8268
 im switching clients you better not fold
-
 
 [11-Mar-22 07:36 PM] acaiberii#8420
 i still have no idea:
@@ -427,198 +285,115 @@ when you joined
 who in the fuck you are
 and why in the fuck your parents love you (or are you an orphan i'd assume???)
 
-
 [11-Mar-22 07:36 PM] Anthraxite#8268
 i joined 2014
 you dont know me because you're a nn
 
-
 [11-Mar-22 07:37 PM] acaiberii#8420
 IM NOT AN NN
-
-
-[11-Mar-22 07:37 PM] acaiberii#8420
 LMAO
-
 
 [11-Mar-22 07:37 PM] acaiberii#8420
 I CODE SHIT
-
-
-[11-Mar-22 07:37 PM] acaiberii#8420
 I DONT HACK
-
-
-[11-Mar-22 07:37 PM] acaiberii#8420
 THAT MUCH
-
 
 [11-Mar-22 07:37 PM] Anthraxite#8268
 you are a nn
-
-
-[11-Mar-22 07:37 PM] Anthraxite#8268
 name one known person who knows you
-
-
-[11-Mar-22 07:37 PM] Anthraxite#8268
 im waiting
-
 
 [11-Mar-22 07:37 PM] acaiberii#8420
 errorcrafter on gh
-
-
-[11-Mar-22 07:37 PM] acaiberii#8420
 master7720 on both disc and github
-
 
 [11-Mar-22 07:37 PM] Anthraxite#8268
 nns
 
-
 [11-Mar-22 07:37 PM] acaiberii#8420
 not nns???
 
-
 [11-Mar-22 07:38 PM] acaiberii#8420
 they work on some of the greatest powercord shit
-
-
-[11-Mar-22 07:38 PM] acaiberii#8420
 they also deobf shit like crazy
-
 
 [11-Mar-22 07:38 PM] Anthraxite#8268
 ok and? thats not mc cheating people
 
-
 [11-Mar-22 07:38 PM] Anthraxite#8268
 dumbass
 
-
 [11-Mar-22 07:38 PM] acaiberii#8420
 didnt ask???/
-
-
-[11-Mar-22 07:38 PM] acaiberii#8420
 😒
-
 
 [11-Mar-22 07:38 PM] Anthraxite#8268
 I did fucking braindead newgen
 
-
 [11-Mar-22 07:38 PM] acaiberii#8420
 sadly i did not see "mc cheating" in that message
-
-
-[11-Mar-22 07:38 PM] acaiberii#8420
 you may want to check your frontal lobe processing power before messaging me
-
 
 [11-Mar-22 07:39 PM] Anthraxite#8268
 what other comm would I be talking about you brainless monkey
 
-
 [11-Mar-22 07:39 PM] acaiberii#8420
 mr intel pentium II
 
-
 [11-Mar-22 07:39 PM] acaiberii#8420
 brainless monkey???? 🤪
-
-
-[11-Mar-22 07:40 PM] acaiberii#8420
 im 99% sure eviate is even smarter than you
-
 
 [11-Mar-22 07:40 PM] Anthraxite#8268
 waiting
-
-
-[11-Mar-22 07:40 PM] Anthraxite#8268
 dont fold
-
 
 [11-Mar-22 07:41 PM] acaiberii#8420
 im exporting this shit
-
-
-[11-Mar-22 07:41 PM] acaiberii#8420
 to a log
-
 
 [11-Mar-22 07:41 PM] Anthraxite#8268
 ok? and?
 
-
 [11-Mar-22 07:41 PM] Anthraxite#8268
 you're folding
 
-
 [11-Mar-22 07:41 PM] acaiberii#8420
 IM NOT LMAO I HAVE ZD OPEN IN THE BACKGROUND
-
-
-[11-Mar-22 07:41 PM] acaiberii#8420
 i need to document your braindeadiness
-
 
 [11-Mar-22 07:41 PM] Anthraxite#8268
 ok so join and duel em gap
-
-
-[11-Mar-22 07:42 PM] Anthraxite#8268
 im waiting
 
+(Crashed because config issue. This is after the ZeroDay v. Ketamine HvH.
+Did I tell you that Ketamine got cracked within a couple weeks after public release? Team Khonsari is amazing.)
 
 [11-Mar-22 07:47 PM] Anthraxite#8268
 where did you go
-
-
-[11-Mar-22 07:47 PM] Anthraxite#8268
 folding?
-
 
 [11-Mar-22 07:47 PM] acaiberii#8420
 crashed
-
-
-[11-Mar-22 07:47 PM] acaiberii#8420
 bc zeroday is shit
-
 
 [11-Mar-22 07:47 PM] Anthraxite#8268
 you talk mad shit for being a 2020 joiner
-
-
-[11-Mar-22 07:47 PM] Anthraxite#8268
 know your place
-
-
-[11-Mar-22 07:47 PM] Anthraxite#8268
 newgen
-
 
 [11-Mar-22 07:47 PM] acaiberii#8420
 i know my place
-
-
-[11-Mar-22 07:47 PM] acaiberii#8420
 i hope you know yours
-
 
 [11-Mar-22 07:47 PM] Anthraxite#8268
 i do
-
-
-[11-Mar-22 07:47 PM] Anthraxite#8268
 way higher than you
-
 
 [11-Mar-22 07:48 PM] acaiberii#8420
 😬
+
+(I blocked him because it would get even worse if I didn't)
 ```
 
 Keep in mind I dont know a lot of the terms used in the conversation since I joined in 2020 and I'm really new (as said an immense fucking amount of times by Anth)
