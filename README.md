@@ -2,7 +2,7 @@
 
 **TL;DR: Random nn gets attacked over having a bad client and config issue, copes about it on r/minecraftclients and gets publicly shamed in multiple Discord servers and DMs.**
 
-I hope you retards dont spam my friends 69 other socials with "TL;DR" because you're clearly braindead.
+I hope you retards dont spam mine and my friends' 69 other socials with "TL;DR" because you're clearly braindead.
 
 ```
 Shouldnt've lost on that HvH!!! - Anthrecite 2022
@@ -398,11 +398,10 @@ way higher than you
 ```
 
 Keep in mind I dont know a lot of the terms used in the conversation since I joined in 2020 and I'm really new (as said an immense fucking amount of times by Anth)
-
 I know that was long, but it explains a lot of the shit that happened.
 
 # A basic summary of the stuff on the Intent discord server(s)
-There was more shit on the Intent private discord server.  
+There was even more shit on the Intent private discord server.  
 Even intent devs seemed to harass me for "malding" and being "retarded" and having "brain damage".
 
 He also publicly shamed me on the Tenacity private discord server, maybe even Exhibition and Ketamine since he owns those too. 🤷‍♂️
