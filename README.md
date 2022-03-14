@@ -402,7 +402,8 @@ I know that was long, but it explains a lot of the shit that happened.
 
 # A basic summary of the stuff on the Intent discord server(s)
 There was even more shit on the Intent private discord server.  
-Even intent devs seemed to harass me for "malding" and being "retarded" and having "brain damage".
+Even intent devs seemed to harass me for "malding" and being "retarded" and having "brain damage".  
+(Server admins said I was "down bad" because I talked about terminating my Intent account on the Reddit post. Lol.)
 
 He also publicly shamed me on the Tenacity private discord server, maybe even Exhibition and Ketamine since he owns those too. 🤷‍♂️
 
