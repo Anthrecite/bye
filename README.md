@@ -435,9 +435,13 @@ I also renamed my github to this 😀
 The name perfectly explains what was said to me.
 
 # My last projects EVER?
-Yup! I'll be releasing a colldction of Python scripts for various purposes soon. This will be my last contribution to the open-aource, and even my entire lifetime.
+Yup! I'll be releasing a collection of Python scripts for various purposes soon. This will be my last contribution to the open-source community, and even my entire lifetime.
 
 If you don't hear from me for a while, don't ask if I killed myself because you'd kmow the answer.
 
 Harassment from 2 different communities in the span of 1 month has seriously took a large toll on my mental health.
+
+# Tf happened to my other repos?
+They're also gone to avoid a massive amount of harassment.  
+No source code will be given to random people. You MUST be my friend to receive source code of my old projecta.`
 
