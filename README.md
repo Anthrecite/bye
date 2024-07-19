@@ -1,3 +1,4 @@
+FOR CONTEXT THIS WAS FORKED FROM SOMEONE I BEAT IN HVH
 ### Closing issues and PRs to avoid further harassment.
 
 **TL;DR: Random nn gets attacked over having a bad client and config issue, copes about it on r/minecraftclients and gets publicly shamed in multiple Discord servers and DMs.**
